@@ -1,0 +1,2 @@
+# 10-interesting-facts-about-Bob-Marley.
+Very little is known about the man except for his love for reggae music or that he used to smoke marijuana.Because of his mixed racial makeup,  Bob was bullied and derogatorily nicknamed “White Boy” by his neighbors.  However, he later said the experience helped him develop this  philosophy: I’m not on the white man’s side, or the black man’s side.  I’m on God’s side.”
